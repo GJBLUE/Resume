@@ -8,6 +8,7 @@
 - 手机：18351993267 
 - Email：gjj921124@gmail.com
 - QQ/微信号：895733091
+- 博客: http://jblue.xyz/
 
 ---
 
